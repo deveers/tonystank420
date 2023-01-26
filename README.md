@@ -1,2 +1,2 @@
 - Hi i'm Stank!
-- I'll be helping you get free shit!
+- I'm an enthusiastic and fast learner!
